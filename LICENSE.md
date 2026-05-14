@@ -1,4 +1,4 @@
-
+Download elite Script for rivals for rivals, the best script available, featuring aimbot and auto-upgrade. This powerful tool ensures you have the upper hand in every match,
 
 
 
